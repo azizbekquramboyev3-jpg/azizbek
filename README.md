@@ -1,0 +1,2 @@
+# azizbek
+Mening birinchi sayitim
